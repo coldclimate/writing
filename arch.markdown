@@ -1,6 +1,6 @@
 # The Arch
 
-No matter where we slept, my brother and I, we'd always be able to see the sky.   Mostly it was was though grimy windows or pools of ater gathering on artium roofs, the thin blue green band of The Arch smeared and wavy though the water and grime, but if it didn't look like we'd get rained of and if the winds weren't terrible, we'd sleep outside.  We spent hours staring up, trying to make out the details as The Arch rotated round up, always lit and glowing.  
+No matter where we slept, my brother and I, we'd always be able to see the sky.   Mostly it was was though grimy windows or pools of water gathering on artium roofs, the thin blue green band of The Arch smeared and wavy though the water and grime, but if it didn't look like we'd get rained of and if the winds weren't terrible, we'd sleep outside.  We spent hours staring up, trying to make out the details as The Arch rotated round up, always lit and glowing.  
 
 We knew that in reality it was vast, a curve hollow loop encircling the Earth, impossibly strong, filled with green vista and blue lakes, but when laying on your back you could cover it's width with an outstretched thumb, watching the landscape disappear on one side of your nail and eventually reappear on the other side, all while your arm ached from holding it straight out inside you.   You knew it had a surface area bigger than the Earth, that it had been built as a second home for all from the crippled and poisoned planet, but it looks so slender and fragile, a crystal bangle drifting in space.
 
